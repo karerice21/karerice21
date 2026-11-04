@@ -1,4 +1,4 @@
-# Hi there, I'm karerice21 👋
+# Hi there, I'm lee 👋
 
 🎓 島根大学 硕士在读 | AI 应用开发 · 数据分析
 
